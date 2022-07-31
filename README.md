@@ -1,6 +1,6 @@
 #### ***Ibrahim Awan***
 
-
+![Picture](https://github.com/Ibrahimawan662/cv/blob/main/7.PNG)
 
 
 # ***Name***
